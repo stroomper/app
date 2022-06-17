@@ -1,3 +1,3 @@
-# DIY FOOD
-Receitas
-Stroganoff
+# DIY FOOD 👨‍🍳
+Receitas 🐔
+Stroganoff 
